@@ -2,7 +2,7 @@
 
 **Sistemas de Informação**
 
-Me chamo Thacyane Rogatto da Silva, tenho 21 anos, sou técnica em Informática e graduanda em Sistemas de Informação pela UNASP de Hortolândia. Possuo experiência em Suporte Técnico (Help Desk / Service Desk). Sou apaixonada por tecnologia e sempre buscando evoluir profissionalmente.
+Me chamo Thacyane Silva, tenho 21 anos, sou técnica em Informática e graduanda em Sistemas de Informação pela UNASP de Hortolândia. Possuo experiência em Suporte Técnico (Help Desk / Service Desk). Sou apaixonada por tecnologia e sempre buscando evoluir profissionalmente.
 
 ---
 
